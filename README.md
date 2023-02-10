@@ -1,1 +1,0 @@
-# sanyamaz.github.io
